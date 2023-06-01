@@ -1,0 +1,4 @@
+- 👋 ola me chamo lucas
+- 👀 e me entereço por jogos de estrategias e construções
+- 🌱 eu estou aprendendo a progama
+- :scream: e eu tenho medo de cobras
